@@ -12,21 +12,6 @@ xml s
 
 xml servlet
 
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
-www.6885t.com
+www.wxshadiao.com
 
 
